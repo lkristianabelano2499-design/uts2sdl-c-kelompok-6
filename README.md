@@ -1,9 +1,13 @@
 https://docs.google.com/document/d/16eolUemPmEhimkGHUXqXS7ycX6XqD-_49dNV9udaBGk/edit?usp=sharing
 
 Oleh  
+
 Abel Y Bigail	255314112
+
 Antonius Dwi Sukamdi	255314073
+
 Vincentius Abimanyu Wahyono	255314106
+
 Yudha Gustavo Manihuruk	255314110
 
 
